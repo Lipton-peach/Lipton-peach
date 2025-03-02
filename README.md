@@ -2,7 +2,7 @@
 - 👀 I’m interested in python, html, css, js
 - 🌱 I’m currently learning python, CSS, JS
 - 💞️ I’m looking to collaborate on ?????idk
-- 📫 How to reach me aaspat12@gmail.com
+- 📫 How to reach me aaspat12@gmail.com or discord: lipton.peach
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i like lipton
 
